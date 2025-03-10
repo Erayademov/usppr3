@@ -1,2 +1,2 @@
 # usppr3
-zdr ko pr
+zdr ko pq dqdo koelda
