@@ -1,5 +1,2 @@
 # usppr3
-zdr ko pr
-az sum djan
-adawdaQ
-DERGFSE
+zdr ko pq dqdo koelda
